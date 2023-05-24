@@ -1,2 +1,0 @@
-# Perrometro-codo-a-codo
-Antes que nada, quiero decir que esta pagina lamentablemente la tuve que hacer solo. Fue muy dificil, estuve mucho tiempo para hacerlo. Mi idea principal era hacer esto en grupo pero tuve problemas con todos los que tuve y salio mal. Espero que eso no cambie mucho las cosas y haya hecho bien las consignas que pedian. Gracias por leer esto, en la seccion de "Creditos" De mi pagina dice casi lo mismo pero quizas te lleves una sorpresa
